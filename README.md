@@ -1,1 +1,1 @@
-# HuddyBuddy15.github.com
+# HuddyBuddy15.github.io
